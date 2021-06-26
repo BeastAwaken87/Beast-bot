@@ -1,2 +1,1 @@
- ## Join my discord 
-
+ ## Join our discord 
