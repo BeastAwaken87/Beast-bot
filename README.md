@@ -1,2 +1,2 @@
-# Beast-bot
-I m noob
+ ## Join my discord 
+
